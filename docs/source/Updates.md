@@ -1,7 +1,7 @@
 ## 不確定因素:
 
 * 中美貿易
-* 南海
+* 南海戰爭
 * 香港政治議題
 * 疫情影響
 * 總統選舉
@@ -11,21 +11,33 @@
 
 目前結論:
 
-    1. 經濟有起色
+    1. 經濟有起色(基本面好轉)
     2. 總統大選，川普會讓股市維持漲的格局
     3. 因為大撒錢，經濟數據都是參考參考~等大選過後，才可看到真實現象?
 
 
 
+ ## 20200906
 
+9/3, 9/4大跌後，在50天有支撐，且出現強烈買盤。目前認為還是多頭格局不變
+
+
+
+<img src="Updates.assets/image-20200906162351575.png" alt="image-20200906162351575" style="zoom:50%;" />
+
+<img src="Updates.assets/image-20200906162526277.png" alt="image-20200906162526277" style="zoom:50%;" />
+
+<img src="Updates.assets/image-20200906162553142.png" alt="image-20200906162553142" style="zoom:50%;" />
+
+
+
+* 就業率有好轉!
+
+<img src="Updates.assets/image-20200906163058117.png" alt="image-20200906163058117" style="zoom:80%;" />
 
 ## 20200824
 
 1. https://www.bbc.com/news/world-us-canada-53884710 川普同意使用 corona virus  plasma treatment，股市盤前長。proven to reduce mortality by 35%
-
-
-
-
 
 八月20號，公布失業率增加。但目前川普有個人的紓困
 
