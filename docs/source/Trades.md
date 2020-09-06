@@ -5,6 +5,12 @@
 
 
 
+#### 20200905
+
+* 預期有個W底出現
+
+
+
 ### TSLA
 
 * Charting configuration: 
