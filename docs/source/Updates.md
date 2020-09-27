@@ -15,6 +15,22 @@
     2. 總統大選，川普會讓股市維持漲的格局
     3. 因為大撒錢，經濟數據都是參考參考~等大選過後，才可看到真實現象?
 
+<img src="Updates.assets/image-20200927221350406.png" alt="image-20200927221350406" style="zoom:67%;" />
+
+
+
+## 20200927
+
+https://www.advisorperspectives.com/dshort/updates/2020/09/25/headline-durable-goods-orders-up-0-4-in-august
+
+![image-20200927183852091](Updates.assets/image-20200927183852091.png)
+
+![image-20200927183911406](Updates.assets/image-20200927183911406.png)
+
+
+
+
+
 
 
  ## 20200906
