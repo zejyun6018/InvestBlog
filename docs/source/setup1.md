@@ -18,18 +18,28 @@ NASI是正面的!!
 
 
 
+(2) 不能進場的時機!
+
+![image-20200927232526784](setup1.assets/image-20200927232526784.png)
+
+![image-20200927232853935](setup1.assets/image-20200927232853935.png)
+
+![image-20200927233141585](setup1.assets/image-20200927233141585.png)
+
+![image-20200927233904783](setup1.assets/image-20200927233904783.png)
+
+
+
+
+
 (2)
 
 ![image-20200927223903351](setup1.assets/image-20200927223903351.png)
 
-
-
-(3)
-
 ![image-20200927224412429](setup1.assets/image-20200927224412429.png)
 
-
-
-(4)
-
 ![image-20200927224823012](setup1.assets/image-20200927224823012.png)
+
+![image-20200927233319295](setup1.assets/image-20200927233319295.png)
+
+![image-20200927233604963](setup1.assets/image-20200927233604963.png)
