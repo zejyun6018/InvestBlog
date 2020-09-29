@@ -21,3 +21,15 @@
 ​                     **不能進場的時機** ==> 價格離月均線太遠!!
 
 ​                     **貫穿這跟若是紅色，下周再跌機率大**
+
+​                <img src="TradingIdeas.assets/image-20200929223839849.png" alt="image-20200929223839849" style="zoom:67%;" />
+
+![image-20200929224245158](TradingIdeas.assets/image-20200929224245158.png)
+
+![image-20200929224536427](TradingIdeas.assets/image-20200929224536427.png)
+
+
+
+相對位置的Risk/Reward
+
+![image-20200929230152692](TradingIdeas.assets/image-20200929230152692.png)
