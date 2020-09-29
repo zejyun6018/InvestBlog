@@ -15,7 +15,7 @@
     2. 總統大選，川普會讓股市維持漲的格局
     3. 因為大撒錢，經濟數據都是參考參考~等大選過後，才可看到真實現象?
 
-<img src="Updates.assets/image-20200927221350406.png" alt="image-20200927221350406" style="zoom:67%;" />
+<img src="Updates.assets/image-20200927221350406.png" />
 
 
 
