@@ -42,6 +42,8 @@
 
 ### NVDA 
 
+* 60%獲利 / 20%損失(10元差距)
+
 * EPS report: 
 
 	| Jan'18 | Apr'18 | July'18 | Oct'18 | Jan'19 | April'19 | July'19 | Oct'19 | JAN'20 | May'20 | July'20 |
