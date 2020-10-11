@@ -17,7 +17,15 @@
     4. 刺激方案!!
     5. 疫苗?!年底有望?! 沒機會，就不會有大漲!
 
-<img src="Updates.assets/image-20200927221350406.png" />
+
+
+
+
+<img src="Updates.assets/image-20200927221350406.png" alt="image-20200927221350406" style="zoom:50%;" />
+
+
+
+
 
 ## 20200930
    迪士尼 lay-off 2.8萬人！ 影響失業率？
