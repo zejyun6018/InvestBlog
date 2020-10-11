@@ -19,13 +19,7 @@
 
 
 
-
-
-<img src="Updates.assets/image-20200927221350406.png" alt="image-20200927221350406" style="zoom:50%;" />
-
-
-
-
+![image-20201011204744501](Updates.assets/image-20201011204744501.png)
 
 ## 20200930
    迪士尼 lay-off 2.8萬人！ 影響失業率？
